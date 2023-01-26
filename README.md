@@ -1,0 +1,1 @@
+I would like to design a website in such a way as it attracts individuals' attention towards it and people can easily understand its functionality as it will be more convenient to use for them ,and may easily get the information which they want.
